@@ -1,1 +1,1 @@
-# Jessica Vaughn - Hillsborough County School Board District 3
+![image](logo-jvaughn_district3.png)
